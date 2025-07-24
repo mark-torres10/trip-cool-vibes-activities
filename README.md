@@ -1,0 +1,1 @@
+# trip-cool-vibes-activities
